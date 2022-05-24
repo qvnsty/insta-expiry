@@ -1,2 +1,2 @@
 # insta-expiry
-<marquee> Re-Modxing with, ❤️ by @vaddxg <marquee>
+<marquee> Re-Modding with, ❤️ by @vaddxg <marquee>
